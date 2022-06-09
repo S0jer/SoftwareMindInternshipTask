@@ -1,0 +1,1 @@
+# SoftwareMindInternshipTask by Paweł Jaśkowiec
